@@ -1,0 +1,2 @@
+# premium-grout-repair-001-historic-grout-repair-lime-m
+Tired of modern grout repairs that crack, crumble, or damage your historic masonry? This Notion workshop delivers the time-tested secrets of lime mortar craft, so you restore with authenticity and durability.  This Notion template turns scattered research and guesswork into a step-by-step restoration system for historic grout repair. You get curate
